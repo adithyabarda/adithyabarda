@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **baradhiadithyareddy@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/11k62cBYF4R8kj1YG36LxsahSclCalJMc/view?usp=drive_link](https://drive.google.com/file/d/11k62cBYF4R8kj1YG36LxsahSclCalJMc/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/18ZdWdnDSVhlZRg8qHYkSMuz1MbA44ILc/view?usp=sharing](Resume)
 
 - ⚡ Fun fact **I can create memes**
 
